@@ -17,6 +17,5 @@ Here are some ideas to get you started:
 😄 Facebook:
 [Facebook -Shakeeb_khan456@yahoo.com](Shakeeb_khan456@yahoo.com)
 
-😄Contact:
-Contact No - 03147896819
+😄Contact No: 03147896819
 
