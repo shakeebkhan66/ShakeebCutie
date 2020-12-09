@@ -10,6 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Flutter, Firebase and Video Editing
 - 😄 Pronouns: He or His
 - ⚡ Fun fact: Reading Books, Listening Music most of the time
-- 📫 How to reach me: 
-
 -->
